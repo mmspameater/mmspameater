@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @mmspameater
+- New to github
+- Please be nice
